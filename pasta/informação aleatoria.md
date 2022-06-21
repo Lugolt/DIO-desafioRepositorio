@@ -1,0 +1,1 @@
+# Terremotos superpoderosos podem alterar o movimento da Terra sobre o seu eixo
